@@ -1,1 +1,1 @@
-The soundtrack for the film "A Star is Born" (2018), starring Lady Gaga and Bradley Cooper, received critical acclaim and commercial success, featuring hits like "Shallow" and "Always Remember Us This Way."
+The rise of grunge fashion, characterized by flannel shirts, ripped jeans, and combat boots, reflected the anti-establishment ethos of the music genre.
