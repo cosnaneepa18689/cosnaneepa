@@ -1,1 +1,1 @@
-The popularity of MTV's "Unplugged" series in the 1990s led to iconic acoustic performances by artists like Nirvana, Eric Clapton, and Alice in Chains.
+Daft Punk's debut album "Homework" (1997) revolutionized electronic music with its blend of house, techno, and funk, influencing a generation of artists.
