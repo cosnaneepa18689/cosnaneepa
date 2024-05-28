@@ -1,1 +1,1 @@
-Daft Punk's debut album "Homework" (1997) revolutionized electronic music with its blend of house, techno, and funk, influencing a generation of artists.
+Beyoncé's visual album "Lemonade" (2016) received widespread acclaim for its exploration of themes like infidelity, race, and feminism, sparking discussions about black womanhood.
