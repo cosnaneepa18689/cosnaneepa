@@ -1,1 +1,1 @@
-Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
+The Backstreet Boys's self-titled debut album (1996) launched the boy band craze of the late 1990s, featuring hits like "Quit Playing Games (with My Heart)" and "Everybody (Backstreet's Back)."
