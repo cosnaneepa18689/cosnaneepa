@@ -1,1 +1,1 @@
-The Backstreet Boys's self-titled debut album (1996) launched the boy band craze of the late 1990s, featuring hits like "Quit Playing Games (with My Heart)" and "Everybody (Backstreet's Back)."
+"Gangnam Style" by Psy, released in 2012, became the first YouTube video to reach one billion views and sparked a global dance craze.
