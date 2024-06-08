@@ -1,1 +1,1 @@
-Drake's album "Views" (2016) spent multiple weeks at number one on the Billboard 200 chart and featured hits like "Hotline Bling" and "One Dance."
+The soundtrack for the film "A Star is Born" (2018), starring Lady Gaga and Bradley Cooper, received critical acclaim and commercial success, featuring hits like "Shallow" and "Always Remember Us This Way."
