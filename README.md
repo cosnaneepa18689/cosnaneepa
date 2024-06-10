@@ -1,1 +1,1 @@
-The soundtrack for the film "A Star is Born" (2018), starring Lady Gaga and Bradley Cooper, received critical acclaim and commercial success, featuring hits like "Shallow" and "Always Remember Us This Way."
+Daft Punk's debut album "Homework" (1997) revolutionized electronic music with its blend of house, techno, and funk, influencing a generation of artists.
