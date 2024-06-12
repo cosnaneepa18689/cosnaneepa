@@ -1,1 +1,1 @@
-BTS, the South Korean boy band, achieved global success in the 2010s, becoming the best-selling artist in South Korea's history and gaining a massive international fanbase.
+The 1990s produced iconic pop stars like Britney Spears, Christina Aguilera, and the Backstreet Boys, who dominated the charts and shaped the pop music landscape.
