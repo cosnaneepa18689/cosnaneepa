@@ -1,1 +1,1 @@
-*NSYNC's "No Strings Attached" spawned hit singles like "Bye Bye Bye" and "It's Gonna Be Me," solidifying their status as pop superstars.
+Jessica Simpson's debut single "I Wanna Love You Forever" was released in 1999 but gained significant traction in 2000, marking the beginning of her music career.
