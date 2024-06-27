@@ -1,1 +1,1 @@
-Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
+The Prodigy's album "The Fat of the Land" (1997) popularized the big beat genre and featured hit singles like "Firestarter" and "Breathe."
