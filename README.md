@@ -1,1 +1,1 @@
-Adele's album "21," released in 2011, became one of the best-selling albums of all time, propelled by hits like "Rolling in the Deep" and "Someone Like You."
+Eminem's album "The Marshall Mathers LP" was released in May 2000 and became the fastest-selling solo album in US history, propelled by hits like "The Real Slim Shady" and "Stan."
