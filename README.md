@@ -1,1 +1,1 @@
-Nelly's debut album "Country Grammar" was released in 2000 and became a commercial success, with singles like "Country Grammar (Hot Sh*t)" and "Ride wit Me."
+Christina Aguilera released her self-titled debut album in 1999, but its success continued into 2000 with hit singles like "What a Girl Wants" and "Come On Over Baby (All I Want Is You)."
