@@ -1,1 +1,1 @@
-The rise of K-pop in the 2010s brought Korean music and culture to the global stage, with acts like BTS, BLACKPINK, and EXO gaining massive popularity worldwide.
+Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
