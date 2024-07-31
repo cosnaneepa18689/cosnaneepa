@@ -1,1 +1,1 @@
-Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
+Latin music experienced a surge in popularity in the 1990s, with artists like Ricky Martin, Shakira, and Selena crossing over to the mainstream market.
